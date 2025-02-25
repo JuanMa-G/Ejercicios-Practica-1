@@ -1,1 +1,1 @@
-# Ejercicios-Practica-1-JMGS
+# Jeimmy Andrea Gonzalez Gordillo - Juan Manuel Gómez Solano
